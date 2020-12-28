@@ -1,0 +1,1 @@
+# dictionary-mac-english-to-farsi
